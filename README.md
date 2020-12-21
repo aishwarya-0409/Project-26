@@ -1,7 +1,7 @@
 # Project-26
 
 
-**Biryani Recipe Card :**
+<h2>Biryani Recipe Card :
    
    
    
