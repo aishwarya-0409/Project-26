@@ -1,21 +1,20 @@
 # Project-26
 
 
-# Biryani Recipe Card 
-   
-   
+# Chicken Biryani Recipe Card 
+
    
 
-In India, the eternal favourite for a special Sunday  or a party dish is definitely a perfectly layered  Biryani, dum cooked to perfection! And it’s a visual delight too – a beautiful array of long-grained , tender  and pungent spices studded with fresh mint and coriander, topped with fried onions and boiled  wedges.  is a good quality protein and when combined with , herbs, spices and yogurt, it makes a healthy and  one pot meal – like every classic  dum biryani should be. Just serve it piping hot essentially with a raita and  or kachumber and wait for all the praises coming your way! I would also suggest trying out this recipe of Brown  Biryani with Chutney .
+In India, the eternal favourite for a special Sunday  or a party dish is definitely a perfectly layered Chicken Biryani, dum cooked to perfection! And it’s a visual delight too – a beautiful array of long-grained , tender  and pungent spices studded with fresh mint and coriander, topped with fried onions and boiled  wedges. Chicken is a good quality protein and when combined with , herbs, spices and yogurt, it makes a healthy and  one pot meal – like every classic Chicken dum biryani should be. Just serve it piping hot essentially with a raita and  or kachumber and wait for all the praises coming your way! I would also suggest trying out this recipe of Chicken Biryani with Chutney .
 - Prep Time : 21-25 minutes
 - Cook time : 16-20 minutes
 - Serve : 4
 - Level Of Cooking : Moderate
 - Taste : Spicy
 
-- Ingredients for  Biryani Recipe
+- Ingredients for Chicken Biryani Recipe :
 
-   - Boneless  600 grams
+   - Boneless Chicken 600 grams
    - Basmati  1 1/2 cups
    - Oil 3 tablespoons
    - Cinnamon 1 inch stick
@@ -49,15 +48,15 @@ In India, the eternal favourite for a special Sunday  or a party dish is definit
   
  - Step 1 :-
   
-Cut  in one inch pieces. Boil  and set aside. Heat oil in a non-stick pan, add cinnamon, bay leaves, cloves, cumin seeds, green cardamoms and sauté for half a minute.
+Cut Chicken in one inch pieces. Boil  and set aside. Heat oil in a non-stick pan, add cinnamon, bay leaves, cloves, cumin seeds, green cardamoms and sauté for half a minute.
   
   - Step 2 :-
    
-Add sliced onions and sauté. Add slit green chillies and  cubes and continue to sauté. Add turmeric powder and mix. Add tomatoes and  and mix. Add ginger-garlic paste, red chilli powder and yogurt. Mix well.
+Add sliced onions and sauté. Add slit green chillies and Chicken cubes and continue to sauté. Add turmeric powder and mix. Add tomatoes and  and mix. Add ginger-garlic paste, red chilli powder and yogurt. Mix well.
 
   - Step 3 :-
   
-Add half the fried brown onions. Add the boiled  on top. Sprinkle garam masala powder, ginger strips, mint leaves and coriander leaves. Sprinkle milk, rose  and remaining browned onions.
+Add half the fried brown onions. Add the boiled Chicken on top. Sprinkle garam masala powder, ginger strips, mint leaves and coriander leaves. Sprinkle milk, rose  and remaining browned onions.
 
   - Step 4 :-
   
